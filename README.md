@@ -136,9 +136,7 @@ Mi objetivo es convertir todo lo aprendido durante **SMR y DAW** en proyectos qu
 
 ## 📫 Contacto
 
-💼 **LinkedIn:** [Añadir LinkedIn]
-🌐 **Portfolio:** [Añadir portfolio]
-📧 **Email:** [Añadir email]
+📧 **Email:** [vicrepcum@gmail.com]
 
 ---
 
